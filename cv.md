@@ -1,2 +1,3 @@
 # Ekaterina Tuisheva
-## Contacts: touicheva@gmail.com, +79276977665  
+### Email: touicheva@gmail.com
+### Phone number: +79276977665  
